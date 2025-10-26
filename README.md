@@ -18,7 +18,7 @@ _Why I Love It:_
 
 ## Movie Series
 
-###*X-Men Movies
+### X-Men Movies
 Genre: Action, Superhero, Science Fiction  
 _Why I Love It:_  
 - The powers and characters are amazing  
